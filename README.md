@@ -40,4 +40,4 @@ Reddit板块（如r/JAV）：活跃社区用户分享高清资源与种子链接
 本文仅为信息导航用途，未提供任何非法内容或下载链接。请确认您已年满18岁，并在遵守当地法律的前提下浏览相关内容。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/5623 ）</span>
